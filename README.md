@@ -14,5 +14,7 @@ My father Mr.Henry Devaraj is a Civil engineer and
 My mother Mrs.Joan Sylvia is a school maths teacher who is very kind and loving
 and i have got a troublesome sister named Merin vinoshia.
 My Favourite person is my best friend CS. She is very sweet and loving. I am really grateful about our friendship.
-She has been a great support to me but currectly she is in a  different college so i miss her terribly. Hope we do our Post graduate studies together.!!!!!!
+She has been a great support to me but currently she is in a  different college so i miss her terribly. Hope we do our Post graduate studies together.!!!!!!
+I am saving up to by a polaroid camera which costs about 19,999
+I have already saved about 2,300 so still 17,699 to go...
 
