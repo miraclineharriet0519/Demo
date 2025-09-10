@@ -17,4 +17,6 @@ My Favourite person is my best friend CS. She is very sweet and loving. I am rea
 She has been a great support to me but currently she is in a  different college so i miss her terribly. Hope we do our Post graduate studies together.!!!!!!
 I am saving up to by a polaroid camera which costs about 19,999
 I have already saved about 2,300 so still 17,699 to go...
+my best friend is naga srinuja
+ 
 
