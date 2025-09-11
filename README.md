@@ -20,3 +20,16 @@ I have already saved about 2,300 so still 17,699 to go...
 my best friend is naga srinuja
  
 
+######################################################################################################################
+
+Miracline Harriet,
+
+I am very happy to read about you, and I feel proud to have you in my class. It’s wonderful to see your genuine interest in coding and the effort you have already taken by completing 4 programming courses. That dedication itself shows how passionate you are, and with continued practice you will surely become a skilled coder.
+
+I appreciate your openness in sharing about your family and friends. With such a supportive background and your positive energy, I am confident you will shine both in academics and in life. 
+
+I also admire your goal of saving for a Polaroid camera—that shows your patience and determination. These qualities will also help you in your studies and career.
+
+Stay consistent, focus on problem-solving, and never be afraid to make mistakes while coding. Every step you take will make you stronger. I am always here to guide and support you in your learning journey.
+
+All the very best—I believe you will achieve great things in your life.
